@@ -3,4 +3,4 @@ Spaghetti has been popular in America for about 75 years. The wave of immigratio
 
 *Spaghetti Lovers - Frena Kirshman*
 
-![Pasta](/images/pasta/pasta_family.jpg)
+![Pasta](/images/pasta/uncle_bill.jpg)
